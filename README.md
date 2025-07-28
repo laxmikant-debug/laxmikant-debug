@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently learning<br>
+🌱 I’m currently learning B.Tech in Electronics & Communication  Engineering<br>
 
 
 ## 🌐 Socials:
